@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ida
-- 👀 I’m interested in studying and videogames as well as hanging out with friends
+- 👀 I’m interested in studying and playing video games as well as hanging out with friends
 - 🌱 I’m currently learning webtechnology and media technology
 - 💞️ I’m looking to collaborate on all sort of things
 - 📫 How to reach me iq222as@student.lnu.se
